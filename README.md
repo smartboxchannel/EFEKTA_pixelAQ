@@ -1,0 +1,1 @@
+# EFEKTA_pixelAQ
